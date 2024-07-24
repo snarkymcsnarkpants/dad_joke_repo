@@ -110,7 +110,7 @@ One Liners
 - Parents, please remind your kids to not do drugs.  They’re driving the prices up for the rest of us. 
 - I took a pole and found that…. 100% of people get mad when their tent falls down.
 - Someone stole all my lamps you think I’d be upset, but I’m actually delighted.
-- I made a playlist for hiking.  It has music from Peanuts, The Cranberries, and Eminem….  I call it "Trail Mix". 
+- I made a playlist for hiking.  It has music from Peanuts, The Cranberries, and Eminem….  I call it "Trail Mix".
 - The difference between a well dressed man on a bike and a poorly dress man on a unicycle?  Attire.
 - Steven King has a son named Joe….   I’m not Joking, but he is. 
 - A shark can swim faster than a human, but a human can run faster than a shark…. So, in a triathlon, it comes down to who’s the better cyclist.
