@@ -87,8 +87,9 @@ Questions
 
 One Liners
 
+- I found a new Box Wine I really like, it's called Cardboardeux.
 - My friend David had his ID stolen. Now he is just Dave.
-- Orion’s Belt is a big waist in space!   ...that was a mediocre joke.  Only three stars.
+- Orion’s Belt is a big waist of space!   ...that was a mediocre joke.  Only three stars.
 - I don't like clouds... they are always throwing shade. 
 - Of all inventions of the 20th century, the dry erase board is the most re-markable.
 - On my way home from work I was mugged by 6 dwarves...  not happy. 
