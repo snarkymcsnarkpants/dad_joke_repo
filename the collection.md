@@ -65,7 +65,7 @@ Jokes
 
 Questions
 
-- 
+- It's odd that we refer to childbirth as "Delvery"... if you think about it, it actually takeout. 
 - Why are Sherlock Holmes' taxes so low?  He's a master of deduction.
 - What has two butts and kills people? An assassin.
 - If a child refuses to sleep during nap time, are they guilty of resisting a rest?
@@ -83,10 +83,15 @@ Questions
 - We all know why 6 is afraid of 7. (Because 7 8 9) But why did 7 eat 9? Because 7 wanted 3 squared meals a day!
 - If I get a job at a railroad... will they expect me to know the job or will they train me?
 - If a dairy cow doesn't produce, is it a milk dud or an udder failure?
+- What has 5 toes and isn't your foot?   My foot.
 
 
 One Liners
 
+- You shouldn't wear glasses when playing football...   it's a contact sport. 
+- I'm reading a great book about lubricants.   It's non-friction.
+- If you slap Dwayne Johnson's butt, you've hit rock bottom. 
+- Before the invention of the crowbar, most crows just drank at home.
 - I found a new Box Wine I really like, it's called Cardboardeux.
 - My friend David had his ID stolen. Now he is just Dave.
 - Orion’s Belt is a big waist of space!   ...that was a mediocre joke.  Only three stars.
@@ -166,6 +171,7 @@ One Liners
 - My son asked me, “Dad are we pyromaniacs?” I answered, “We Arson”. 
 - Fun Fact: Every human is born with 4 kidneys.  As they mature, two of them turn into adult knees.
 - No matter how far you push the envelope, it will always be stationary
+- 
 
 
 Thanks Giving Related
