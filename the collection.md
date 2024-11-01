@@ -65,7 +65,7 @@ Jokes
 
 Questions
 
-- It's odd that we refer to childbirth as "Delvery"... if you think about it, it actually takeout. 
+
 - Why are Sherlock Holmes' taxes so low?  He's a master of deduction.
 - What has two butts and kills people? An assassin.
 - If a child refuses to sleep during nap time, are they guilty of resisting a rest?
@@ -88,6 +88,7 @@ Questions
 
 One Liners
 
+- It's odd that we refer to childbirth as "Delvery"... if you think about it, it actually takeout. 
 - You shouldn't wear glasses when playing football...   it's a contact sport. 
 - I'm reading a great book about lubricants.   It's non-friction.
 - If you slap Dwayne Johnson's butt, you've hit rock bottom. 
