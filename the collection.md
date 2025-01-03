@@ -90,6 +90,11 @@ Questions
 
 One Liners
 
+- When I was growing up plastic surgery was a bit of a taboo subject...  These days if you mention Botox no one raises an eyebrow.
+- The letter E is the only letter recieving a gift from Santa this year...  Because all the other letters are Naught-E.
+- I recenlty heard about a new and improved Calculator that works instantly... it's called the Calucu-NOW. 
+- I just spent a bunch of money on a nice belt that was too small...  it was a big waste. 
+- The difference between Iron Man and Aluminium Man...  Iron Man stops criminals, Aluminium Man simply foils thier plans. 
 - It's odd that we refer to childbirth as "Delvery"... if you think about it, it actually takeout. 
 - You shouldn't wear glasses when playing football...   it's a contact sport. 
 - I'm reading a great book about lubricants.   It's non-friction.
