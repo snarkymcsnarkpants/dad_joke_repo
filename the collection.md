@@ -67,7 +67,6 @@ Questions
 
 
 - Why to chicken coops have two doors?  Cause if they had four doors it would be a chicken Sedan.
-- 
 - Why are Sherlock Holmes' taxes so low?  He's a master of deduction.
 - What has two butts and kills people? An assassin.
 - If a child refuses to sleep during nap time, are they guilty of resisting a rest?
@@ -90,6 +89,9 @@ Questions
 
 One Liners
 
+- Schrödinger's cat walks into a bar. And doesn't.
+- I only drink Holy Milk...  It's pastor-ized.
+- If you rearrange the letters of postmen, they get very angry.
 - When I was growing up plastic surgery was a bit of a taboo subject...  These days if you mention Botox no one raises an eyebrow.
 - The letter E is the only letter recieving a gift from Santa this year...  Because all the other letters are Naught-E.
 - I recenlty heard about a new and improved Calculator that works instantly... it's called the Calucu-NOW. 
@@ -181,8 +183,25 @@ One Liners
 - No matter how far you push the envelope, it will always be stationary
 - 
 
+Nerd / Intelectual / require thought... 
 
-Thanks Giving Related
+- Schrödinger's cat walks into a bar. And doesn't.
+    (A nod to quantum mechanics’ superposition, where the cat is simultaneously alive and dead until observed.)
+
+- Descartes walks into a bar. The bartender asks, "Would you like a drink?" Descartes replies, "I think not," and disappears.
+    (A twist on Descartes’ "I think, therefore I am," implying his existence hinges on thought.)
+
+- Heisenberg was pulled over for speeding. The officer says, "Do you know how fast you were going?" Heisenberg replies, "No, but I know exactly where I am."
+    (A riff on the uncertainty principle, where knowing a particle’s speed precludes pinpointing its position.)
+
+
+
+
+
+
+
+
+ThanksGiving Related
 
 - When does Christmas come before Thanksgiving? In the dictionary.
 - I always heat up my thankgiving leftovers.  I quit cold turkey a long time ago.
