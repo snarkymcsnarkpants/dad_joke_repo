@@ -89,6 +89,8 @@ Questions
 
 One Liners
 
+- The Dalai Lama walks into a pizza shop and asks, "Can you make me one with everything?"
+- Naming false teeth "dentures" represents a missed opportunity.  They could have been known as "substitooths". 
 - Schrödinger's cat walks into a bar. And doesn't.
 - I only drink Holy Milk...  It's pastor-ized.
 - If you rearrange the letters of postmen, they get very angry.
