@@ -89,6 +89,7 @@ Questions
 
 One Liners
 
+- The fact that many people can't distinguish between entomology and etymology bugs me in ways I can't put into words. 
 - The Dalai Lama walks into a pizza shop and asks, "Can you make me one with everything?"
 - Naming false teeth "dentures" represents a missed opportunity.  They could have been known as "substitooths". 
 - Schrödinger's cat walks into a bar. And doesn't.
