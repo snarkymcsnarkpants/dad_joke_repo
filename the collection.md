@@ -89,6 +89,8 @@ Questions
 
 One Liners
 
+- Time flies like an arrow; fruit flies like a banana.
+- I used to be a baker, but I couldn’t make enough dough
 - The fact that many people can't distinguish between entomology and etymology bugs me in ways I can't put into words. 
 - The Dalai Lama walks into a pizza shop and asks, "Can you make me one with everything?"
 - Naming false teeth "dentures" represents a missed opportunity.  They could have been known as "substitooths". 
