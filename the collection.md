@@ -89,6 +89,7 @@ Questions
 
 One Liners
 
+- 10 plus 10 and 11 plus 11 equal the same thing...  10 plus 10 is twenty and 11 plus 11 is twenty too.
 - Time flies like an arrow; fruit flies like a banana.
 - I used to be a baker, but I couldn’t make enough dough
 - The fact that many people can't distinguish between entomology and etymology bugs me in ways I can't put into words. 
