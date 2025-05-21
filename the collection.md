@@ -138,7 +138,7 @@ One Liners
 - The difference between a well dressed man on a bike and a poorly dress man on a unicycle?  Attire.
 - Steven King has a son named Joe….   I’m not Joking, but he is. 
 - A shark can swim faster than a human, but a human can run faster than a shark…. So, in a triathlon, it comes down to who’s the better cyclist.
-- My son keeps eating electrical cords.  I had to ground him until he conducts himself correctly. 
+- My son keeps eating electrical cords.  I had to ground him until he conducts himself properly. 
 - Today I learned that Albert Einstein was a real person. All this time I thought he just was a theoretical physicist.
 - Never date tennis players; love means nothing to them. 
 - I hired a handyman and gave him a list of 5 things to do; he only did items 1, 3 and 5 on the list.  When asked why, he replied “I only do odd jobs”. 
