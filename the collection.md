@@ -89,6 +89,7 @@ Questions
 
 One Liners
 
+- I'd like to give a shout out to my fingers; I can count on all of them.
 - I tried to come up with a carpentry pun that woodwork...  I think I nailed it, but nobody saw it. 
 - 10 plus 10 and 11 plus 11 equal the same thing...  10 plus 10 is twenty and 11 plus 11 is twenty too.
 - Time flies like an arrow; fruit flies like a banana.
