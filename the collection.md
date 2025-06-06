@@ -89,6 +89,7 @@ Questions
 
 One Liners
 
+- It's been a pretty weird day today, first off, I found a hat full of money.   Then I got chased by an angry man with a guitar.
 - I'd like to give a shout out to my fingers; I can count on all of them.
 - I tried to come up with a carpentry pun that woodwork...  I think I nailed it, but nobody saw it. 
 - 10 plus 10 and 11 plus 11 equal the same thing...  10 plus 10 is twenty and 11 plus 11 is twenty too.
