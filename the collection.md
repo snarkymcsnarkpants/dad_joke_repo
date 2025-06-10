@@ -89,6 +89,7 @@ Questions
 
 One Liners
 
+- As a child I was attacked by cameras...   I still have flashbacks, but other than that I don't seem to have developed any nagatives to the exposure.
 - It's been a pretty weird day today, first off, I found a hat full of money.   Then I got chased by an angry man with a guitar.
 - I'd like to give a shout out to my fingers; I can count on all of them.
 - I tried to come up with a carpentry pun that woodwork...  I think I nailed it, but nobody saw it. 
