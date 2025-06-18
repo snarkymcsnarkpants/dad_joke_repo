@@ -90,7 +90,7 @@ Questions
 One Liners
 
 - I bought my kids some crayons.  I have to say... they make my kin scrawl.
-- Crayons are just the same as M&Ms... They taste the same no matter what color they are.
+- Crayons are exactly like M&Ms... They taste the same no matter what color they are.
 - As a child I was attacked by cameras...   I still have flashbacks, but other than that I don't seem to have developed any nagatives to the exposure.
 - It's been a pretty weird day today, first off, I found a hat full of money.   Then I got chased by an angry man with a guitar.
 - I'd like to give a shout out to my fingers; I can count on all of them.
