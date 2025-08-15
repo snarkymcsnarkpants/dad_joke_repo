@@ -89,6 +89,8 @@ Questions
 
 One Liners
 
+- Parallel lines have so much in common—it's a shame they'll never meet.
+- The rotation of the Earth really makes my day.
 - I asked the parking attendant to validate my parking...   all he did was walk over and tell me I did a good job. 
 - I bought my kids some crayons.  I have to say... they make my kin scrawl.
 - Crayons are exactly like M&Ms... They taste the same no matter what color they are.
