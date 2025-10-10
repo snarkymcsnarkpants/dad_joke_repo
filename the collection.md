@@ -89,6 +89,8 @@ Questions
 
 One Liners
 
+- TIL the German word for constipation is farfrompoopin
+- I ask my friend Sam to sing a song about the iPhone... then Sam sung.
 - Parallel lines have so much in common—it's a shame they'll never meet.
 - The rotation of the Earth really makes my day.
 - I asked the parking attendant to validate my parking...   all he did was walk over and tell me I did a good job. 
