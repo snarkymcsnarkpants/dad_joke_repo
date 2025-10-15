@@ -89,6 +89,8 @@ Questions
 
 One Liners
 
+- If you work security at a Samsung store, does that make you a gaurdian of the Galaxy?
+- If you buy a bigger bed, your left with more bedroom, but with less... bedroom.
 - TIL the German word for constipation is farfrompoopin
 - I ask my friend Sam to sing a song about the iPhone... then Sam sung.
 - Parallel lines have so much in common—it's a shame they'll never meet.
