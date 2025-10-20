@@ -211,9 +211,6 @@ Nerd / Intelectual / require thought...
 - Descartes walks into a bar. The bartender asks, "Would you like a drink?" Descartes replies, "I think not," and disappears.
     (A twist on Descartes’ "I think, therefore I am," implying his existence hinges on thought.)
 
-- Heisenberg was pulled over for speeding. The officer says, "Do you know how fast you were going?" Heisenberg replies, "No, but I know exactly where I am."
-    (A riff on the uncertainty principle, where knowing a particle’s speed precludes pinpointing its position.)
-
 
 
 
