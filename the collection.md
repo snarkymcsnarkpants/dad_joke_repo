@@ -89,6 +89,7 @@ Questions
 
 One Liners
 
+- We all know Alexander Graham Bell invented the telephone...  but his brother, Taco, did some pretty important work as well.
 - If you work security at a Samsung store, does that make you a gaurdian of the Galaxy?
 - If you buy a bigger bed, your left with more bedroom, but with less... bedroom.
 - TIL the German word for constipation is farfrompoopin
