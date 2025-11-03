@@ -79,7 +79,6 @@ Questions
 - What do you call a person that tells a dad joke, but isn’t a father?  A faux pas
 - How does a non-binary Samurai kill people?  They/Them
 - What are a chocolate bar’s pronouns?  Her/She
-- What is the difference between pine nuts and deer nuts?  Pine nuts are kinda expensive, but you can find deer nuts under a buck.
 - Where do they send  bad rainbows?  To Prism.   It’s a light sentences, but it gives them time to reflect.
 - We all know why 6 is afraid of 7. (Because 7 8 9) But why did 7 eat 9? Because 7 wanted 3 squared meals a day!
 - If I get a job at a railroad... will they expect me to know the job or will they train me?
@@ -89,6 +88,10 @@ Questions
 
 One Liners
 
+- The main difference between pine nuts and deer nuts...  Pine nuts are kinda expensive, but you can find deer nuts under a buck.
+- A will serves as a dead giveaway.
+- A plateau represents the highest form of flattery.
+- Bakers guard thier trade secrets closely... it's stricly knead-to-know basis.
 - We all know Alexander Graham Bell invented the telephone...  but his brother, Taco, did some pretty important work as well.
 - If you work security at a Samsung store, does that make you a gaurdian of the Galaxy?
 - If you buy a bigger bed, your left with more bedroom, but with less... bedroom.
