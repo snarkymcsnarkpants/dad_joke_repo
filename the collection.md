@@ -89,7 +89,7 @@ Questions
 One Liners
 
 
-- Knowledge is knowing a tomato is a fruit...  Wisdom is knowing not to put it into a fruit salad...
+- Strength is being able to crush a tomato. Dexterity is being able to dodge a tomato. Constitution is being able to eat a bad tomato. Intelligence is knowing a tomato is a fruit. Wisdom is knowing not to put a tomato in a fruit salad. Charisma is being able to sell a tomato based fruit salad
 - The main difference between pine nuts and deer nuts...  Pine nuts are kinda expensive, but you can find deer nuts under a buck.
 - A will serves as a dead giveaway.
 - A plateau represents the highest form of flattery.
