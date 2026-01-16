@@ -88,7 +88,11 @@ Questions
 
 One Liners
 
-
+- The inventor of the door knocker won the no-bell prize.
+- I told a chemistry joke, but there was no reaction.
+- The past, present, and future walked into a bar. It was tense.
+- Atheism is a non-prophet organization.
+- I ate a clock... it was very time consuming because it kept me coming back for seconds. 
 - Strength is being able to crush a tomato. Dexterity is being able to dodge a tomato. Constitution is being able to eat a bad tomato. Intelligence is knowing a tomato is a fruit. Wisdom is knowing not to put a tomato in a fruit salad. Charisma is being able to sell a tomato based fruit salad
 - The main difference between pine nuts and deer nuts...  Pine nuts are kinda expensive, but you can find deer nuts under a buck.
 - A will serves as a dead giveaway.
