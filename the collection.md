@@ -88,6 +88,7 @@ Questions
 
 One Liners
 
+- I recently bought a chicken to make some sandwiches...  It doesn't;  Its just noisy and poops all over the floor. 
 - The inventor of the door knocker won the no-bell prize.
 - I told a chemistry joke, but there was no reaction.
 - The past, present, and future walked into a bar. It was tense.
