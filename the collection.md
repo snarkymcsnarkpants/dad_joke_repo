@@ -156,17 +156,17 @@ One Liners
 - I’ve adopted a pet termite and I’m calling him Clint.  Clint Eats-wood.
 - Parents, please remind your kids to not do drugs.  They’re driving the prices up for the rest of us. 
 - I took a pole and found that…. 100% of people get mad when their tent falls down.
-- Someone stole all my lamps you think I’d be upset, but I’m actually delighted.
+- Someone stole all my lamps... you think I’d be upset, but I’m actually delighted.
 - I made a playlist for hiking.  It has music from Peanuts, The Cranberries, and Eminem….  I call it "Trail Mix".
 - The difference between a well dressed man on a bike and a poorly dress man on a unicycle?  Attire.
 - Steven King has a son named Joe….   I’m not Joking, but he is. 
 - A shark can swim faster than a human, but a human can run faster than a shark…. So, in a triathlon, it comes down to who’s the better cyclist.
 - My son keeps eating electrical cords.  I had to ground him until he conducts himself properly. 
-- Today I learned that Albert Einstein was a real person. All this time I thought he just was a theoretical physicist.
+- Today I learned that Albert Einstein was a real person. All this time I thought he was just a theoretical physicist.
 - Never date tennis players; love means nothing to them. 
 - I hired a handyman and gave him a list of 5 things to do; he only did items 1, 3 and 5 on the list.  When asked why, he replied “I only do odd jobs”. 
 - Never donate your money to someone who is doing jog-a-thon…  They just take your money and run.
-- I recently learned you can’t run through a campground, you have to “RAN”; because it’s past tents. 
+- I recently learned you can’t run through a campground, you have to “RAN” because it’s past tents. 
 - 5 ants rented an apartment with another 5 ants… now they are tenants. 
 - Someone broke into my house and stole my brand new limbo stick…. I mean, seriously, how low can you go?
 - I got hit in the head with a can of coke; I’m ok, it was a soft drink. 
