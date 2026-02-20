@@ -1,5 +1,8 @@
 Aaron's Favorite Quotes
 
+"They say that nothing is impossible... but I do nothing every day."
+- Winnie The Pooh
+
 "I had a handle on life... it broke off."
 - unknown
 
