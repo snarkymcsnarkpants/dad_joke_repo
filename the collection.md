@@ -69,6 +69,7 @@ Jokes
 Questions
 
 
+- If a woman marries a man who already has grandchildren, does she become an Instagram?
 - Why to chicken coops have two doors?  Cause if they had four doors it would be a chicken Sedan.
 - Why are Sherlock Holmes' taxes so low?  He's a master of deduction.
 - What has two butts and kills people? An assassin.
