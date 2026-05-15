@@ -68,7 +68,7 @@ Jokes
 
 Questions
 
-
+- If Geese fly in a v formation, why is one leg of the v longer than the other?  There's more geese there. 
 - If a woman marries a man who already has grandchildren, does she become an Instagram?
 - Why to chicken coops have two doors?  Cause if they had four doors it would be a chicken Sedan.
 - Why are Sherlock Holmes' taxes so low?  He's a master of deduction.
