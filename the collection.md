@@ -90,6 +90,13 @@ Questions
 - What has 5 toes and isn't your foot?   My foot.
 
 
+Rita's Souther Sayin's
+
+- I'm holding on like a hiar in a biscut.
+- Lost as a ball in high weeds
+- Let me tote that for you...
+
+
 One Liners
 
 - I recently bought a chicken to make some sandwiches...  It didn't really work, cause its just noisy and poops all over the floor. 
