@@ -1,0 +1,25 @@
+Chuck Norris Jokes
+
+- Chuck Norris doesn't read books. He stares them down until he gets the information he wants.
+- Time waits for no man. Unless that man is Chuck Norris.
+- If you spell Chuck Norris in Scrabble, you win. Forever.
+- In the Beginning there was nothing ... then Chuck Norris roundhouse kicked nothing and told it to get a job.
+- When God said, “Let there be light!” Chuck Norris said, “Say Please.”
+- Chuck Norris does not own a stove, oven or microwave, because revenge is a dish best served cold.
+- Chuck Norris does not sleep. He waits.
+- Chuck Norris does not use spell check. If he happens to misspell a word, Oxford will change the spelling.
+- Chuck Norris' calendar goes straight from March 31st to April 2nd, because no one fools Chuck Norris.
+- Chuck Norris counted to infinity... twice.
+- Chuck Norris once won a game of Connect Four in three moves.
+- Champions are the breakfast of Chuck Norris.
+- When the Boogeyman goes to sleep every night he checks his closet for Chuck Norris.
+- Chuck Norris can slam revolving doors.
+- The dark is afraid of Chuck Norris.
+- Death once had a near-Chuck-Norris experience.
+- When Chuck Norris enters a room, he doesn't turn the lights on, he turns the dark off.
+- Chuck Norris is the reason why Waldo is hiding.
+- Chuck Norris does not get frostbite. Chuck Norris bites frost.
+- In Pamplona, Spain, the people may be running from the bulls, but the bulls are running from Chuck Norris.
+- Chuck Norris can divide by zero.
+- Chuck Norris destroyed the periodic table, because Chuck Norris only recognizes the element of surprise.
+- Chuck Norris can kill two stones with one bird.

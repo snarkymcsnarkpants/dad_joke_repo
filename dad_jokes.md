@@ -1,0 +1,169 @@
+Jokes
+
+- I Was watching an Australian baking show and the host was making a meringue pie.  When she took it out of the oven the audience cheered, which surprised me; typically Australians boo-merang.
+- The salesman at the furniture store told me, “This sofa will seat 5 people without any problems.”  I replied, “Where am I going to find 5 people without any problems?”
+- A man loses three fingers in an accident.  He asked his doctor, “Can I drive with this hand?”  The doctor replied “ Maybe, but I wouldn’t count on it”.
+
+Questions
+
+- If Geese fly in a v formation, why is one leg of the v longer than the other?  There's more geese there.
+- If a woman marries a man who already has grandchildren, does she become an Instagram?
+- Why to chicken coops have two doors?  Cause if they had four doors it would be a chicken Sedan.
+- Why are Sherlock Holmes' taxes so low?  He's a master of deduction.
+- What has two butts and kills people? An assassin.
+- If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+- Why can’t you hear a pterodactyl going to the bathroom?  Cause the “P” is silent.
+- If two vegans get into a fight, is it still considered a beef?
+- Why do seagulls fly over the ocean?  Cause if they flew over the bay, we’d call them bagels.
+- What thinks the unthinkable?  Ithe Burgths
+- Why Did The Farmer Try A Career In Music After His Unsuccessful Harvest?  Cause he had a lot of sick beets.
+- How do you know that a joke is a Dad joke? It becomes a parent
+- What do you call a person that tells a dad joke, but isn’t a father?  A faux pas
+- How does a non-binary Samurai kill people?  They/Them
+- What are a chocolate bar’s pronouns?  Her/She
+- Where do they send  bad rainbows?  To Prism.   It’s a light sentences, but it gives them time to reflect.
+- We all know why 6 is afraid of 7. (Because 7 8 9) But why did 7 eat 9? Because 7 wanted 3 squared meals a day!
+- If I get a job at a railroad... will they expect me to know the job or will they train me?
+- If a dairy cow doesn't produce, is it a milk dud or an udder failure?
+- What has 5 toes and isn't your foot?   My foot.
+
+One Liners
+
+- I recently bought a chicken to make some sandwiches...  It didn't really work, cause its just noisy and poops all over the floor.
+- The inventor of the door knocker won the no-bell prize.
+- I told a chemistry joke, but there was no reaction.
+- The past, present, and future walked into a bar. It was tense.
+- Atheism is a non-prophet organization.
+- I ate a clock... it was very time consuming because it kept me coming back for seconds.
+- Strength is being able to crush a tomato. Dexterity is being able to dodge a tomato. Constitution is being able to eat a bad tomato. Intelligence is knowing a tomato is a fruit. Wisdom is knowing not to put a tomato in a fruit salad. Charisma is being able to sell a tomato based fruit salad
+- The main difference between pine nuts and deer nuts...  Pine nuts are kinda expensive, but you can find deer nuts under a buck.
+- A will serves as a dead giveaway.
+- A plateau represents the highest form of flattery.
+- Bakers guard thier trade secrets closely... it's stricly knead-to-know basis.
+- We all know Alexander Graham Bell invented the telephone...  but his brother, Taco, did some pretty important work as well.
+- If you work security at a Samsung store, does that make you a gaurdian of the Galaxy?
+- If you buy a bigger bed, your left with more bedroom, but with less... bedroom.
+- TIL the German word for constipation is farfrompoopin
+- I ask my friend Sam to sing a song about the iPhone... then Sam sung.
+- Parallel lines have so much in common—it's a shame they'll never meet.
+- The rotation of the Earth really makes my day.
+- I asked the parking attendant to validate my parking...   all he did was walk over and tell me I did a good job.
+- I bought my kids some crayons.  I have to say... they make my kin scrawl.
+- Crayons are exactly like M&Ms... They taste the same no matter what color they are.
+- As a child I was attacked by cameras...   I still have flashbacks, but other than that I don't seem to have developed any nagatives to the exposure.
+- It's been a pretty weird day today, first off, I found a hat full of money.   Then I got chased by an angry man with a guitar.
+- I'd like to give a shout out to my fingers; I can count on all of them.
+- I tried to come up with a carpentry pun that woodwork...  I think I nailed it, but nobody saw it.
+- 10 plus 10 and 11 plus 11 equal the same thing...  10 plus 10 is twenty and 11 plus 11 is twenty too.
+- Time flies like an arrow; fruit flies like a banana.
+- I used to be a baker, but I couldn’t make enough dough
+- The fact that many people can't distinguish between entomology and etymology bugs me in ways I can't put into words.
+- The Dalai Lama walks into a pizza shop and asks, "Can you make me one with everything?"
+- Naming false teeth "dentures" represents a missed opportunity.  They could have been known as "substitooths".
+- Schrödinger's cat walks into a bar. And doesn't.
+- I only drink Holy Milk...  It's pastor-ized.
+- If you rearrange the letters of postmen, they get very angry.
+- When I was growing up plastic surgery was a bit of a taboo subject...  These days if you mention Botox no one raises an eyebrow.
+- The letter E is the only letter recieving a gift from Santa this year...  Because all the other letters are Naught-E.
+- I recenlty heard about a new and improved Calculator that works instantly... it's called the Calucu-NOW.
+- I just spent a bunch of money on a nice belt that was too small...  it was a big waste.
+- The difference between Iron Man and Aluminium Man...  Iron Man stops criminals, Aluminium Man simply foils thier plans.
+- It's odd that we refer to childbirth as "Delvery"... if you think about it, it actually takeout.
+- You shouldn't wear glasses when playing football...   it's a contact sport.
+- I'm reading a great book about lubricants.   It's non-friction.
+- If you slap Dwayne Johnson's butt, you've hit rock bottom.
+- Before the invention of the crowbar, most crows just drank at home.
+- I found a new Box Wine I really like, it's called Cardboardeux.
+- My friend David had his ID stolen. Now he is just Dave.
+- Orion’s Belt is a big waist of space!   ...that was a mediocre joke.  Only three stars.
+- I don't like clouds... they are always throwing shade.
+- Of all inventions of the 20th century, the dry erase board is the most re-markable.
+- On my way home from work I was mugged by 6 dwarves...  not happy.
+- Soy milk is just regular milk introducing itself in Spanish.
+- Programmers prefer dark mode, because light attract bugs.
+- The reason teenage girls walk in groups of 3, 5, or 7...  Because they literally can't even.
+- The good friends I eat with... they are my taste buds.
+- Pro-Tip: the best way to attack a group of clowns is to go straight for the juggler.
+- If apple made a car, the only thing it would be missing is windows…
+- The people who take care of chickens are literally, Chicken Tenders.
+- A man was hospitalized after swallowing 6 plastic horses; His condition is listed as stable.
+- My wife asked where I got so much candy; I told here I always have a few Twix up my sleeve.
+- Spring is here and I’m so excited I wet my plants.
+- TIL: The reason Dracula bites people is because he's a neck romancer.
+- It's amazing how a colon can change the meaning of a sentence, for example:  Jane ate her friend's sandwich. -vs- Jane ate her friend's colon.
+- Fun fact: When you are drinking beer, the beer is getting drunk too.
+- Ironing pants makes them smaller…  Because it de-creases them.
+- I asked my brother to pass me a leaflet, he said brosure
+- I’ve adopted a pet termite and I’m calling him Clint.  Clint Eats-wood.
+- Parents, please remind your kids to not do drugs.  They’re driving the prices up for the rest of us.
+- I took a pole and found that…. 100% of people get mad when their tent falls down.
+- Someone stole all my lamps... you think I’d be upset, but I’m actually delighted.
+- I made a playlist for hiking.  It has music from Peanuts, The Cranberries, and Eminem….  I call it "Trail Mix".
+- The difference between a well dressed man on a bike and a poorly dress man on a unicycle?  Attire.
+- Steven King has a son named Joe….   I’m not Joking, but he is.
+- A shark can swim faster than a human, but a human can run faster than a shark…. So, in a triathlon, it comes down to who’s the better cyclist.
+- My son keeps eating electrical cords.  I had to ground him until he conducts himself properly.
+- Today I learned that Albert Einstein was a real person. All this time I thought he was just a theoretical physicist.
+- Never date tennis players; love means nothing to them.
+- I hired a handyman and gave him a list of 5 things to do; he only did items 1, 3 and 5 on the list.  When asked why, he replied “I only do odd jobs”.
+- Never donate your money to someone who is doing jog-a-thon…  They just take your money and run.
+- I recently learned you can’t run through a campground, you have to “RAN” because it’s past tents.
+- 5 ants rented an apartment with another 5 ants… now they are tenants.
+- Someone broke into my house and stole my brand new limbo stick…. I mean, seriously, how low can you go?
+- I got hit in the head with a can of coke; I’m ok, it was a soft drink.
+- I have a friend, she is the mother of twin boys, Amal and Juan.  She only carries a picture of one of the boys because if you’ve seen Juan you’ve seen Amal
+- My wife called me with a list of things she wanted to do for her 32nd birthday,  I told her that was a lot to do in 30 seconds.
+- People who drug their farm animals should get off their high horse.
+- I was going to tell joke about paper, but I didn’t cause it’s tearable.
+- The pessimist sees a dark tunnel, The optimist sees a light at the end of the tunnel The realist sees a freight train and the train driver sees three idiots standing on the tracks.
+- Last night my wife and I watched two movies back to back.  Luckily I was the one facing the tv.
+- I went to a costume party last night, dressed as a screwdriver; I Turned a few heads.
+- I am gonna retire and start making mirrors; its something I can see myself doing.
+- I had to stop taking my young kids to the symphony, just too much Sax and Violins.
+- I once had a horse that I could only ride in the dark, it was a real night mare.
+- I am tired today… I was up all night wondering where the sun went… then it dawned on me.
+- If someone slaps you at a high frequency, it Hertz.
+- I have a fear of speed bumps…. I’m slowly getting over it.
+- I saw a new device, it’s a thought controlled air freshener; it makes sense when you think about it.
+- I live for two reasons: 1. I was born, 2. I haven’t died yet
+- The dyslexic, agnostic, insomniac is someone who stays up all night wondering if there is a dog.
+- My kids school lost power, all the students were de-lighted.
+- I used to crastinate, but I got so good I went pro.
+- I had to stop crushing cans, it was soda pressing.
+- It takes guts to be an organ donor.
+- You Matter, until you multiply yourself times the speed of light squared, then, You Energy.
+- I used to think I was indecisive, but now I’m not too sure.
+- Don’t spell part backward.  It’s a trap.
+- Never Trust Atoms, they make up everything.
+- I’m reading a book about anti-gravity.  It’s impossible to put down.
+- The Shovel was a ground breaking invention.
+- I like to use big words to make me sound more photosynthesis.
+- I’m so good at sleeping, I can do it with my eyes closed.
+- I told my wife she drew her eyebrows too high.  She seemed surprised.
+- I think that calling this presentation average would be mean.
+- To whoever stole my copy of Microsoft Office, I will find you.  You have my Word!
+- My kid says to me, “Dad, what rhymes with orange?” I responded, “No it doesn’t!”
+- Two cannibals are eating a clown.  Once says to the other, “Does this taste funny to you?”
+- I really want to go on a diet, I just have way too much on my plate right now.
+- I thought about going on an all-pecan diet, but that’s just nuts.
+- The last thing my dad said to me before he kicked the bucket was, “Son, watch how far I can kick this bucket.
+- Two goldfish are in a tank.  One says to the other, “Do you know how to drive this thing?”
+- I got arrested for downloading the whole wikipedia.  I told them I could explain everything.
+- My son asked me, “Dad are we pyromaniacs?” I answered, “We Arson”.
+- Fun Fact: Every human is born with 4 kidneys.  As they mature, two of them turn into adult knees.
+- No matter how far you push the envelope, it will always be stationary
+-
+
+Nerd / Intelectual / require thought...
+
+- Schrödinger's cat walks into a bar. And doesn't.
+  (A nod to quantum mechanics’ superposition, where the cat is simultaneously alive and dead until observed.)
+- Descartes walks into a bar. The bartender asks, "Would you like a drink?" Descartes replies, "I think not," and disappears.
+  (A twist on Descartes’ "I think, therefore I am," implying his existence hinges on thought.)
+
+ThanksGiving Related
+
+- When does Christmas come before Thanksgiving? In the dictionary.
+- I always heat up my thankgiving leftovers.  I quit cold turkey a long time ago.
+- What is the key to a successful Thanksgiving dinner?  The tur-key.
+- What comes at the end of Thanksgiving? The letter 'g.'
