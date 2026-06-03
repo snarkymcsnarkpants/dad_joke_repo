@@ -1,5 +1,4 @@
 Rita's Souther Sayin's
 
 - I'm holding on like a hair in a biscut.
-- Lost as a ball in high weeds.
-- Let me tote that for you...
+- The man is lost as a ball in high weeds.
