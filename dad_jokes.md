@@ -29,7 +29,7 @@ Questions
 
 One Liners
 
-- They say that tear-off pants aren't for everone, but I think I could pull them off. 
+- They say that tear-off pants aren't for everyone, but I think I could pull them off. 
 - Scientists recently combined the dna of a cheetah with the dna of a crab…things went sideways, real fast.
 - I recently bought a chicken to make some sandwiches...  It didn't really work, cause its just noisy and poops all over the floor.
 - The inventor of the door knocker won the no-bell prize.
