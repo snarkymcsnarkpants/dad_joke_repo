@@ -26,6 +26,7 @@ Questions
 - If I get a job at a railroad... will they expect me to know the job or will they train me?
 - If a dairy cow doesn't produce, is it a milk dud or an udder failure?
 - What has 5 toes and isn't your foot?   My foot.
+- Is there a reason we don't pronounce the "meow" in "homeowner"?
 
 One Liners
 
@@ -163,7 +164,7 @@ Nerd / Intelectual / require thought...
 - Descartes walks into a bar. The bartender asks, "Would you like a drink?" Descartes replies, "I think not," and disappears.
   (A twist on Descartes’ "I think, therefore I am," implying his existence hinges on thought.)
 
-ThanksGiving Related
+Thanksgiving Related
 
 - When does Christmas come before Thanksgiving? In the dictionary.
 - I always heat up my thankgiving leftovers.  I quit cold turkey a long time ago.
