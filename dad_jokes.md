@@ -21,7 +21,7 @@ Questions
 - What do you call a person that tells a dad joke, but isn’t a father?  A faux pas
 - How does a non-binary Samurai kill people?  They/Them
 - What are a chocolate bar’s pronouns?  Her/She
-- Where do they send  bad rainbows?  To Prism.   It’s a light sentences, but it gives them time to reflect.
+- Where do they send  bad rainbows?  To Prism.   It’s a light sentence, but it gives them time to reflect.
 - We all know why 6 is afraid of 7. (Because 7 8 9) But why did 7 eat 9? Because 7 wanted 3 squared meals a day!
 - If I get a job at a railroad... will they expect me to know the job or will they train me?
 - If a dairy cow doesn't produce, is it a milk dud or an udder failure?
@@ -30,6 +30,7 @@ Questions
 
 One Liners
 
+- I love synonym rolls, just like my old grammar used to make.
 - They say that tear-off pants aren't for everyone, but I think I could pull them off. 
 - Scientists recently combined the dna of a cheetah with the dna of a crab…things went sideways, real fast.
 - I recently bought a chicken to make some sandwiches...  It didn't really work, cause its just noisy and poops all over the floor.
